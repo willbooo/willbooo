@@ -1,2 +1,2 @@
-### Willmoo <3
-**Currently working on one-discord**
+Pronouns: he/him
+working on: one-discord
